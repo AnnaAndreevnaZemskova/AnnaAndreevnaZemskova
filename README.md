@@ -29,7 +29,7 @@ I have strong communication skills, the ability to work effectively in a team an
 ## ✍ My contact:
 📫 mail: anuta.nyta1012@yandex.ru 
 
-🤳 telegram: @AnnaAndreevnaZemskova
+🤳 telegram: [@AnnaAndreevnaZemskova](https://t.me/@AnnaAndreevnaZemskova)
 
 <!---
 AnnaAndreevnaZemskova/AnnaAndreevnaZemskova is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
